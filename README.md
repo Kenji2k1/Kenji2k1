@@ -1,3 +1,4 @@
-- 👋 Hi, I’m @Kenji2k1
-Discord: _.Kenji_
+ 👋 Hi, I’m @Kenji2k1
+Discord: _Kenji.dev
+
 
